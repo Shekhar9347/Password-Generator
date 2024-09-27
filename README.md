@@ -1,0 +1,5 @@
+- 👋 Hi, I'm Chandra shekhar
+- I'm interested in software development and Web development and IT field
+- I'm currently learning Web development and java development
+- I'm looking to collaborate with IT industries
+- Please hire me 
